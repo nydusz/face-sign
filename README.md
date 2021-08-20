@@ -4,8 +4,6 @@
 
 
 # 预览
- 
-[![2Xtmlj.png](https://z3.ax1x.com/2021/06/16/2Xtmlj.png)](https://imgtu.com/i/2Xtmlj)
 
 [![2Xtn6s.png](https://z3.ax1x.com/2021/06/16/2Xtn6s.png)](https://imgtu.com/i/2Xtn6s)
 
